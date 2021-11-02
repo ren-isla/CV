@@ -2,7 +2,7 @@
 
 > # Рената Исламгулова
 
-![Да, это я!](zzz.jpg)
+![Да, это я!](20211022_160836.jpg)
 
 По данному [тесту личности](https://www.16personalities.com/ru) я [Стратег](https://www.16personalities.com/ru/lichnost-intj "чета не виднааа")
 
